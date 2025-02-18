@@ -7,7 +7,7 @@
  **Je cherche à collaborer sur** : des projets open-source, des applications web full-stack, et des plateformes sociales interactives.  
 
 **Comment me joindre** :  
-- Email : [mon email](alexiswilberson8@gmail.com)  
+- Email : [mon email: alexiswilberson8@gmail.com]  
 - Facebook : ([link]https://www.facebook.com/profile.php?id=100076056071231&mibextid=ZbWKwL)  
 - Instagram : [link]https://www.instagram.com/wilbersoalexis?igsh=bDRha2g2c3d2M2t0)  
 
